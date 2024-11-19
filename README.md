@@ -4,7 +4,7 @@
 - 💞️ I’m not looking to collaborate on anything yet. 
 - 📫 How to reach me: n/a @ the moment.
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I don't know what to write here.
 
 <!---
 hweirdness/hweirdness is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
